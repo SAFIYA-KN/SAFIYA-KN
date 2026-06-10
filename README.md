@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **U2303194@rajagiri.edu.in**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGnkzMhMbs/a3zpNyF_DhLk5Wnowgwn9Q/edit?utm_content=DAGnkzMhMbs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAGnkzMhMbs/a3zpNyF_DhLk5Wnowgwn9Q/edit?utm_content=DAGnkzMhMbs&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
+- 📄 Know about my experiences 
 
 - ⚡ Fun fact **I still don't understand how we made all this by making a rock THINK**
 
