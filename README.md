@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **U2303194@rajagiri.edu.in**
 
-- 📄 Know about my experiences 
+- 📄 Know about my experiences [Resume](https://github.com/SAFIYA-KN/SAFIYA-KN/blob/main/Safiya.K.N_Resume.pdf)
 
 - ⚡ Fun fact **I still don't understand how we made all this by making a rock THINK**
 
