@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **DSA ,PYTHO ,JAVA and , maybe C**
 
-- 📫 How to reach me **U2303194@rajagiri.edu.in**
+- 📫 How to reach me **safiyakn088@gmail.com**
 
 - 📄 Know about my experiences [Resume](https://github.com/SAFIYA-KN/SAFIYA-KN/blob/main/Safiya.K.N_Resume.pdf)
 
